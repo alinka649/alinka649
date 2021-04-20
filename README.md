@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @alinka649
-- 👀 I’m interested in acquaintance
+- 👀 Хочу познакомиться с может быть будущим парнем ❤
 - 🌱 I’m currently learning lawyer
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on будущим)  
 - 📫 How to reach me http://surl.li/qpbz
 
 <!---
